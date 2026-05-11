@@ -1,4 +1,4 @@
-
+Craft for macOS elite Macro: auto-sync & voice notes offers the most advanced Craft for macOS macro, with auto-sync and voice notes. Ideal for professionals.
 
 
 
